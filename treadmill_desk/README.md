@@ -108,4 +108,4 @@ I put one of them on top as a desk cover, which makes everything so much prettie
 
 ### Closing thoughts
 
-How am I liking it?  Great, so far (it's been about 45 minutes).  I put this page together while walking on the treadmill, walking at 1.5mph.  Seems legit.  :metal: :walking:
+How am I liking it?  It's a great first pass.  I've really got to get some cable management happening.  Otherwise, it's been great, so far (it's been about 45 minutes).  I put this page together while walking on the treadmill, walking at 1.5mph.  Seems legit.  :metal: :walking:
