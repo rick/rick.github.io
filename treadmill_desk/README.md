@@ -66,7 +66,9 @@ The specifics:
  * [Weslo Cadence G 5.9 Treadmill](http://www.walmart.com/ip/Weslo-Cadence-G-5.9-Treadmill/14972088) - ordered from Wal-Mart, picked up at a store.  Total: $304, including tax.
  * Big 7 foot by 3 foot black IKEA table top from Habitat for Humanity ReStore.  Total: $24, incl. tax.
 
-**Grand total: $846**  Not too shabby, and I'm pretty happy with how it turned out (see pictures below).
+**Grand total: $846**  
+
+Not too shabby, and I'm pretty happy with how it turned out (see pictures below).
 
 For the treadmill, I took off the arms, and fished out the cable from the treadmill to the console so I could run it separately.  
 I disconnected the small active part of the console from the huge and crazy-ass plastic frame it lives in.  I just put it in the desk,
