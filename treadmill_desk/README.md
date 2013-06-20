@@ -36,6 +36,8 @@ wasting $3500 on something that my fat ass is just tripping over on a daily basi
 
 ![](https://github-images.s3.amazonaws.com/skitch/sit-to-walk-station-desk-treadmill-3-20130620-165716.png)
 
+#### DIY, fashionably, without breaking the bank
+
 So, I dug around some more and found the bits and pieces to put together something workable myself for a lot 
 cheaper than some of the high-end setups, and that might actually look reasonable in my office.
 
@@ -73,6 +75,10 @@ though I might get fancier with it eventually.  It's working well enough at the 
 The desk I assembled according to instructions (I went as wide as it would go, to give plenty of treadmill room and to
 provide the widest possible base for the desk top).  I just plopped the desk top onto the frame and cranked it up high
 enough to walk and type.  :tada:
+
+Not included in the bill of sale, I guess... We have a number of block-printed textiles from our trips to India, 
+including some [Ajrakh](http://www.thehindu.com/arts/crafts/ajrakh-printing/article3981585.ece) cloths.  
+I put one of them on top as a desk cover, which makes everything so much prettier (lots of Ajrakh pictures [here](https://www.google.com/search?q=ajrakh&tbm=isch)).
 
 ## Pictures...
 
