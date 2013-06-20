@@ -71,7 +71,7 @@ The specifics:
 Not too shabby, and I'm pretty happy with how it turned out (see pictures below).
 
 For the treadmill, I took off the arms, and fished out the cable from the treadmill to the console so I could run it separately.  
-I disconnected the small active part of the console from the huge and crazy-ass plastic frame it lives in.  I just put it in the desk,
+I disconnected the small active part of the console from the huge and crazy-ass plastic frame it lives in.  I just put it on the desk,
 though I might get fancier with it eventually.  It's working well enough at the moment.
 
 The desk I assembled according to instructions (I went as wide as it would go, to give plenty of treadmill room and to
