@@ -1,4 +1,4 @@
-## I built a treadmill desk.
+## Now I have a treadmill desk!
 
 I've been travelling a lot over the past few years, and, while I've got more travel ahead of me, 
 I'm spending the summer almost entirely at home.  I'm likely, starting this fall, to be at home a lot more.
@@ -75,6 +75,8 @@ though I might get fancier with it eventually.  It's working well enough at the 
 The desk I assembled according to instructions (I went as wide as it would go, to give plenty of treadmill room and to
 provide the widest possible base for the desk top).  I just plopped the desk top onto the frame and cranked it up high
 enough to walk and type.  :tada:
+
+![](http://www.thehindu.com/multimedia/dynamic/00286/14SMAJRARH1_JPG_286637g.jpg)
 
 Not included in the bill of sale, I guess... We have a number of block-printed textiles from our trips to India, 
 including some [Ajrakh](http://www.thehindu.com/arts/crafts/ajrakh-printing/article3981585.ece) cloths.  
