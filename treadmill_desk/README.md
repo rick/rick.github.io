@@ -43,7 +43,7 @@ cheaper than some of the high-end setups, and that might actually look reasonabl
 
 I found a number of standard treadmills, on the cheaper end of the spectrum.  Some of
 them had low horsepower, or small tread decks, or documented annoying interfaces / beeps / smoking problems (what could go
-wrong?).  I ended up finding a model that looked reasonable, found a PDF of the manual online and verified that I
+wrong?) :fire: :skull: :fire:  I ended up finding a model that looked reasonable, found a PDF of the manual online and verified that I
 could probably dismantle the arm handles from it and still keep it working, and then priced it out.  It ended up that
 it was in the $450 range if I were to order it from Amazon, but it was in the $250 range if I ordered it from Wal-Mart 
 and picked it up at the store nearest my parents (whom I was visiting last weekend anyway).  So I went that route.
