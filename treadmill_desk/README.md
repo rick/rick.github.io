@@ -57,7 +57,7 @@ Finally, I did just that.  We have a Habitat for Humanity "ReStore" in town that
 in there yesterday and looked around.  Leaning against some shelves was a black IKEA "door", or countertop or something (well, 
 it was labelled as a door, but no hinges, doorknob, knob holes, handles, etc.) that was priced at $45.  But it was marked
 down to $22.  I grabbed that, checked out for $24 (incl. tax), and tried to fit it in my car (seriously, I've gotten some
-big stuff in there, surprisingly).  Wasn't going to happen: it was just too big.  I looked up and a friend was driving by
+big stuff in there, surprisingly -- including the treadmill!).  Wasn't going to happen: it was just too big.  I looked up and a friend was driving by
 in a truck with an empty trailer (no joke) and helped me out.  Crazy.
 
 The specifics:
