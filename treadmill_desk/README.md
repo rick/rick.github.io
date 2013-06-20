@@ -9,12 +9,12 @@
 ![](https://raw.github.com/rick/rick.github.io/master/treadmill_desk/images/finished_1.jpg)
 
 
-(Please forgive the lighting and the horrid cable management.)
-
 
 #### Another perspective...
 
 ![](https://raw.github.com/rick/rick.github.io/master/treadmill_desk/images/finished_2.jpg)
+
+(Please forgive the lighting and the horrid cable management.)
 
 #### And yet another.
 
