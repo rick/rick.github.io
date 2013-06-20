@@ -39,10 +39,10 @@ wasting $3500 on something that my fat ass is just tripping over on a daily basi
 #### DIY, fashionably, without breaking the bank
 
 So, I dug around some more and found the bits and pieces to put together something workable myself for a lot 
-cheaper than some of the high-end setups, and that might actually look reasonable in my office.
+cheaper than some of the high-end setups, and that might actually look reasonable in my office.  Here's what I ended up with:
 
-Here's what I ended up with.  I found a number of standard treadmills, on the cheaper end of the spectrum.  Some of
-them had low HP, or small tread decks, or documented annoying interfaces / beeps / smoking problems (what could go
+I found a number of standard treadmills, on the cheaper end of the spectrum.  Some of
+them had low horsepower, or small tread decks, or documented annoying interfaces / beeps / smoking problems (what could go
 wrong?).  I ended up finding a model that looked reasonable, found a PDF of the manual online and verified that I
 could probably dismantle the arm handles from it and still keep it working, and then priced it out.  It ended up that
 it was in the $450 range if I were to order it from Amazon, but it was in the $250 range if I ordered it from Wal-Mart 
