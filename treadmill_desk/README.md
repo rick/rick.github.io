@@ -10,6 +10,8 @@ While I'm pretty sure the industrial food system in :us: is partly to blame, my 
 account for as much or more of the phenomonen:  When I'm abroad I'm almost always walking or hiking
 all day, sometimes with a backpack on my back.  
 
+![](http://farm5.staticflickr.com/4063/4352424185_5b4651e149_z.jpg)
+
 When I'm at home, I used to bike a lot (but my bike got stolen
 and I've yet to replace it).  I love to walk and hike, but, even though I live near downtown in Nashville, 
 I found myself realizing that there's very little in town that I actually want to walk to.  I'd almost rather
@@ -23,12 +25,16 @@ travelling.
 
 So, I did some research on treadmill desks -- desks, usually with motorized or manual height adjustment, that have 
 a treadmill underneath.  Many of them just take a plain treadmill, with big arms and consoles, and stick some wood or
-shelves on top, and call that a desk.  Not really attractive, and, well, that matters to me.
+shelves on top, and call that a desk.  **Not really attractive, and, well, that matters to me:**
+
+![](http://www.toesalad.com/media/images/article/treadmill-desk-in-use-side.jpg)
 
 Others come ready-made with $800-$1200 treadmills, coupled with specialized desks (or whose builders recommend
 buying desks separately), some of the desks being $1000-$2500 themselves.  This seems like a bit much to me, 
 especially since I don't know if the setups would actually work for me.  What if I'm just lazy, and I end up
 wasting $3500 on something that my fat ass is just tripping over on a daily basis?
+
+![](https://github-images.s3.amazonaws.com/skitch/sit-to-walk-station-desk-treadmill-3-20130620-165716.png)
 
 So, I dug around some more and found the bits and pieces to put together something workable myself for a lot 
 cheaper than some of the high-end setups, and that might actually look reasonable in my office.
