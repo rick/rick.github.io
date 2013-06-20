@@ -48,7 +48,7 @@ could probably dismantle the arm handles from it and still keep it working, and 
 it was in the $450 range if I were to order it from Amazon, but it was in the $275 range if I ordered it from Wal-Mart 
 and picked it up at the store nearest my parents (whom I was visiting last weekend anyway).  So I went that route.
 
-For the standing desk, I found an adjustable desk frame, i.e., not top, with a manual adjustment -- that is, a hand
+For the standing desk, I found an adjustable desk frame, i.e., with no actual desktop, and with a manual adjustment -- that is, a hand
 crank instead of an electric motor and switches.  I could get that frame through Amazon, delivered, and it wouldn't break 
 the bank.  I've never liked any of the desktops that I've seen with adjustable desks (they're all too Office Space for me),
 so this was actually a plus to me.  Certainly I could find a top that I liked and just put it on myself and save a little money.
