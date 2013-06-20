@@ -12,8 +12,8 @@ all day, sometimes with a backpack on my back.
 
 ![](http://farm5.staticflickr.com/4063/4352424185_5b4651e149_z.jpg)
 
-When I'm at home, I used to bike a lot (but my bike got stolen
-and I've yet to replace it).  I love to walk and hike, but, even though I live near downtown in Nashville, 
+I used to bike a lot at home, but my bike got stolen
+and I've yet to replace it.  I love to walk and hike, but, even though I live near downtown in Nashville, 
 I found myself realizing that there's very little in town that I actually want to walk to.  I'd almost rather
 stay at home.  If I go hiking it's a conscious effort to drive somewhere where I can hike for a few miles and then 
 drive back.  As the weather gets hotter (and it gets pretty sticky here in the summer), if I don't get up and get 
