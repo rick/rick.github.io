@@ -45,7 +45,7 @@ I found a number of standard treadmills, on the cheaper end of the spectrum.  So
 them had low horsepower, or small tread decks, or documented annoying interfaces / beeps / smoking problems (what could go
 wrong?) :fire: :skull: :fire:  I ended up finding a model that looked reasonable, found a PDF of the manual online and verified that I
 could probably dismantle the arm handles from it and still keep it working, and then priced it out.  It ended up that
-it was in the $450 range if I were to order it from Amazon, but it was in the $250 range if I ordered it from Wal-Mart 
+it was in the $450 range if I were to order it from Amazon, but it was in the $275 range if I ordered it from Wal-Mart 
 and picked it up at the store nearest my parents (whom I was visiting last weekend anyway).  So I went that route.
 
 For the standing desk, I found an adjustable desk frame, i.e., not top, with a manual adjustment -- that is, a hand
