@@ -106,6 +106,21 @@ I put one of them on top as a desk cover, which makes everything so much prettie
 
 ![](https://raw.github.com/rick/rick.github.io/master/treadmill_desk/images/finished_3.jpg)
 
+### **UPDATE** -- Treadmill desk, part deux
+
+Last November I became a papa, and once I returned to work from parental leave, I found it desirable to share some office space with a few of my Nashville-based co-workers (at least a few days a week).  Rather than taking away the desk at home (and preventing anyone else from using it), I decided to actually create a second treadmill desk in our shared office space.
+
+I bought the same adjustable desk, and the same treadmill (this time, shipped for free from Wal-Mart to our office), and I scored a $9 "door" for a desktop at the same Habitat ReStore where I got the first one.
+
+A couple pictures of that new setup (taken from whatever angles were available):
+
+![](https://github-team.s3.amazonaws.com/uploads/general/IMG_20140218_191806.jpg)
+
+![](https://github-team.s3.amazonaws.com/uploads/general/IMG_20140218_191825.jpg)
+
+
 ### Closing thoughts
 
-How am I liking it?  It's a great first pass.  I've really got to get some cable management happening.  Otherwise, it's been great, so far (it's been about 45 minutes).  I put this page together while walking on the treadmill, walking at 1.5mph.  Seems legit.  :metal: :walking:
+I started this as an experiment -- in the worst case I had an adjustable standing desk, which would be an upgrade over the non-adjustable standing desk I'd been using.  Also, a treadmill that I or someone else could use as a normal treadmill (not under a desk).  
+
+It turns out I really like it -- I get a lot of exercise when I'm working now (walking between 7.5 and 9 miles a day, typically), and I end up pretty quickly at the top of the [fitbit](http://www.fitbit.com) rankings among the people I know and work with.  I can walk at 2.3 mph while actively working, and 3 or more mph when just reading longer-form articles and text.  I believe I can concentrate better and stay more focused while walking and working too, so that's a plus.  When first starting I had various body aches, especially lower back stiffness and tightness, but after a few days that eased up and I generally feel healthier these days.
