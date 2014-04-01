@@ -124,3 +124,7 @@ A couple pictures of that new setup (taken from whatever angles were available):
 I started this as an experiment -- in the worst case I had an adjustable standing desk, which would be an upgrade over the non-adjustable standing desk I'd been using.  Also, a treadmill that I or someone else could use as a normal treadmill (not under a desk).  
 
 It turns out I really like it -- I get a lot of exercise when I'm working now (walking between 7.5 and 9 miles a day, typically), and I end up pretty quickly at the top of the [fitbit](http://www.fitbit.com) rankings among the people I know and work with.  I can walk at 2.3 mph while actively working, and 3 or more mph when just reading longer-form articles and text.  I believe I can concentrate better and stay more focused while walking and working too, so that's a plus.  When first starting I had various body aches, especially lower back stiffness and tightness, but after a few days that eased up and I generally feel healthier these days.
+
+**UPDATE (part deux)**:  In the way of progress reports:  I was at the top of our company's fitbit stats for March, 2014.  We have ~150 people in our group, but, really, only about 30 or so of them appear to be consistently active.  I was actually out for a solid week doing nothing but sitting around watching basketball games with a friend, so I have high hopes for April :-)
+
+![](https://github-images.s3.amazonaws.com/skitch/GitHub_Leaders-20140401-100221.gif)
